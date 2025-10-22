@@ -1,2 +1,2 @@
-# Programa-o-em-Python---SENAI
+# Programa-em-Python---SENAI
 ⭐️⭐️⭐️⭐️⭐️⭐️
